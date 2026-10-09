@@ -1,7 +1,7 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=noysjubileeyuuxs&color=red&style=flat-square"alt="profile views" />
 
 
-rivals usr is js nessi1234 cs I currently cant change it 💔
+rivals usr is ' sweetmrswagner ' !! ♥️
 
 
 
