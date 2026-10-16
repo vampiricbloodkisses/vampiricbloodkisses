@@ -8,8 +8,11 @@ rivals usr is ' sweetmrswagner ' !! ♥️
 
 ok sorry for changing this again.
 
+i love bucky.
 
-![1000031555](https://github.com/user-attachments/assets/ab18665a-7771-4b05-90fe-c5e993698681)
+<img width="540" height="540" alt="1000031727" src="https://github.com/user-attachments/assets/4193e6ff-b4f5-4d30-81d9-da0152d858f8" />
+
+
 
 
 
