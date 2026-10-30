@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=noysjubileeyuuxs&color=blue&style=flat-square"alt="profile views" />
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=noysjubileeyuuxs&color=red&style=flat-square"alt="profile views" />
 
 
 rivals usr is ' sweetmrswagner ' !! ♥️
@@ -8,7 +8,8 @@ rivals usr is ' sweetmrswagner ' !! ♥️
 
 ok sorry for changing this again, dw everything else on my phone is bucky 🥹
 
-<img width="484" height="550" alt="1000031963" src="https://github.com/user-attachments/assets/baf982b5-96c2-49bd-a159-e365a62fea74" />
+![1000032135](https://github.com/user-attachments/assets/3d64feb9-7d67-4d67-b5e1-38268a73f5b6)
+
 
 
 
